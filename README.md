@@ -1,1 +1,1 @@
-# About-me..... It describes some informatioln about Wossenu Weretaw
+# About-me..... It describes some information about Wossenu Weretaw
